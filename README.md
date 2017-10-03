@@ -1,4 +1,4 @@
-Choose-Wisely
+Choose Wisely
 =============
 
 http://jazzberrygames.com/choosewisely/
